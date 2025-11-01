@@ -1,1 +1,3 @@
-# ai4ing_20252
+# Juan Pablo Orozco Arrieta
+# CC.1000292298
+# Bioingenieria
